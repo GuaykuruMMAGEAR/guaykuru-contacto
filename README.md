@@ -1,2 +1,0 @@
-# guaykuru-contacto
-GUAYKURU CONTACTO
